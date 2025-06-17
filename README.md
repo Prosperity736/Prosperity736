@@ -2,7 +2,7 @@
 - 👀 I’m interested in data analytics 
 - 🌱 I’m currently learning Excel,powerbi,sql,python 
 - 💞️ I’m looking to collaborate on a meaningful projects
-- 📫 How to reach me @lindln onwuzirike prosper
+- 📫 How to reach me @Linkedln onwuzirike prosper||||
 - 😄 Pronouns: pros-per-ity
 - ⚡ Fun fact: love you 
 
